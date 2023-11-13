@@ -5,4 +5,3 @@ Hola bienvenidos a mi perfil, donde estare aprendiendo a usar la plataforma y so
 [![dark-souls-bonfire.gif](https://i.postimg.cc/qqtgK9f1/dark-souls-bonfire.gif)](https://postimg.cc/YLHpKDCF)
  
 Gamer/Geek and Furry 🐾
-Adrian Zamora
